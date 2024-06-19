@@ -1,2 +1,2 @@
 # LATERN
-![](https://github.com/janeeshgithub/Images/blob/main/1%20(52).jpg)
+![](https://github.com/janeeshgithub/LATERN/blob/main/li.jpeg)
